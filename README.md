@@ -1,3 +1,4 @@
 # GitHubseminar
 Just for a seminar
-’†‘º—FÆ‚ª‘‚«‚Ü‚µ‚½
+ï¿½ï¿½ï¿½ï¿½ï¿½Fï¿½Æ‚ï¿½ï¿½ï¿½ï¿½ï¿½ï¿½Ü‚ï¿½ï¿½
+ã‚³ãƒ³ãƒ•ãƒªã‚¯ãƒˆãƒ†ã‚¹ãƒˆ
